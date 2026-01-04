@@ -20,4 +20,4 @@ I enjoy solving real-world problems using automated workflows, clean code, and t
 
 #### 📫 Let’s Connect
 - Portfolio / Website: *your link here*  
-- LinkedIn: *your link here*
+- LinkedIn: [*your link here*](https://www.linkedin.com/in/puranthapa/)
