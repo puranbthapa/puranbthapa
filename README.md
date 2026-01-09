@@ -21,3 +21,5 @@ I enjoy solving real-world problems using automated workflows, clean code, and t
 #### 📫 Let’s Connect
 - Portfolio / Website:  [*FaceBook:*](https://www.facebook.com/puran.b.thapa) 
 - [*LinkedIn:*](https://www.linkedin.com/in/puranthapa/)
+- - [*TikTok:*](https://www.tiktok.com/@ainepal2025))
+
